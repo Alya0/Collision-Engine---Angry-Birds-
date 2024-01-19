@@ -36,7 +36,6 @@ You can download the game from [here](https://lnkd.in/efGh39j7).
 ## Setup
 
 
-
 ## Preview
 
 
